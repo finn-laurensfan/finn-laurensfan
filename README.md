@@ -1,4 +1,4 @@
-`so there will be a revolution in this century! [enter me.]`
+`when you're living on your knees you rise up`
 
 masc genderfluid, pref he/him/they/them
 
