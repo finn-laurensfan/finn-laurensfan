@@ -9,6 +9,8 @@ mostly a hamilton [original/broadway cast] cosplay
 c+h but may not always resp, mostly offtab.
 
 
+[the only music i listen to anymore] (https://open.spotify.com/album/1kCHru7uhxBUdzkm4gzRQc?si=EGeeSh-yQySqKlAo9uq76w)
+
 
 artist + amateur animator
 
